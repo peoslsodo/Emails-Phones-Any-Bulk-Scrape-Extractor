@@ -1,14 +1,13 @@
 #  Emails|Phones|Any Bulk Scrape & Extractor Pro
 #  https://codecanyon.net/item/email-bulk-searchextractadd-tools/35506368
 
-<p>
 
-    <strong> Emails|Phones|Any Bulk Scrape & Extractor Pro</strong>
+<strong> Emails|Phones|Any Bulk Scrape & Extractor Pro</strong>
     is a powerful tool that allows you to bulk extract email and phone numbers from various social media platforms including
     <strong> Facebook, Twitter,Instagram, LinkedIn,Youtube,Pinterest,TikTok,Tumblr,Dribbble,VK,Discord,ok.ru,Line,Snapchat</strong> and any website.
     Support for proxy features that allow you to extract data from any
     website <strong>without any blocking</strong>, you can easily collect contact information of potential customers and use it for your marketing and sales efforts.
-</p>
+    
 
 <h2><strong>Fast Extract Email</strong></h2>
 <p>Easily scraper <strong>50,000+ emails(Depends on your keyword) in one hour</strong>, helping you quickly increase your customers</p>
