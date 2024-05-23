@@ -1,11 +1,16 @@
 #  Emails|Phones|Any Bulk Scrape & Extractor Pro
-##  Download link:  
+##  Free Download link:  
 #### 🌐https://bit.ly/3Afgjjc   
 #### 🌐https://bit.ly/socialextract
 
-##  💛whatsapp http://wa.me/13156299582  🪬Telegram: https://t.me/IonicSupport
+ ## All Product List:🌐 https://bit.ly/alloninesocial
+### Telegram: 👉 https://t.me/IonicSupport   
+### Whatsapp  👉 http://wa.me/447999197856
+### Telegram Support Group:👉 https://t.me/+UVmjOA7wu3szYzM1
 
-## Youtube channel  📟 https://www.youtube.com/channel/UCz2Ti8uKwv0Fh5j5IgUTPww
+### Youtube Channel 
+📽 https://www.youtube.com/channel/UCz2Ti8uKwv0Fh5j5IgUTPww
+📽 https://www.youtube.com/channel/UC6NZcaPmat9ooKW1yLxdnjQ
 
 
  is a powerful tool that allows you to bulk extract email and phone numbers from various social media platforms including
@@ -50,8 +55,7 @@
 
 
 <h2><strong>Amazing Features</strong></h2>
-<ul>
-    <li>✅<strong>Work automatically 7*24 hours in proxy mode</strong></li>
+<ul><li>✅<strong>Work automatically 7*24 hours in proxy mode</strong></li>
     <li>✅<strong>100% Extract|Scraper Email|Phone|Tel|Fax|Whatsapp</strong></li>
     <li>✅<strong>Formatted output of all phone numbers</strong></li>
     <li>✅Extract|Scraper <strong>Any website</strong></li>
@@ -131,27 +135,6 @@
     higher return on investment.
 </p>
 
-<h2><strong>Important Tip:</strong></h2>
-<p>1.Non -proxy mode:Your IP is very easy to be Prevent by Google search engine. it's can recover as long as you wait for a few minutes. The software is automated that you don't need any operation.</p>
-<p>2.Proxy Mode:In the proxy mode, the program quickly automatically rotate the proxy, you have no operation.</p>
-
-<h2><strong>Runtime Environment</strong></h2>
-<p>Support win7 win8 win10 win11 winserver</p>
-
-
-
-<h2><strong>About Resell</strong></h2>
-<p>
-    If you need to resell this App, you can contact us to purchase a license keygen app. <strong>
-        Start your money-making journey now.
-    </strong>
-</p>
-<a href="http://wa.me/13156299582" rel="nofollow">
-    <img src="https://i.ibb.co/0G3WGzH/resell.png" alt="Emails|Phones|Any Bulk Scrape & Extractor Pro-Resell" />
-</a>
-<a href="http://wa.me/13156299582" rel="nofollow">
-    <img src="https://i.ibb.co/FzhZN8L/license-Tools.png" alt="Emails|Phones|Any Bulk Scrape & Extractor Pro license-Tools" />
-</a>
 
 
 
